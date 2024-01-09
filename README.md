@@ -1,4 +1,4 @@
-![]([https://www.google.com/url?sa=i&url=https%3A%2F%2Fwifflegif.com%2Ftags%2F227193-mudanza-gifs&psig=AOvVaw0iGfZZYR-iU2JrVEETuX6h&ust=1704880889164000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCMi2kLGG0IMDFQAAAAAdAAAAABAE](https://www.gifsanimados.org/data/media/1373/transporte-y-mudanza-imagen-animada-0044.gif)
+![](https://www.gifsanimados.org/data/media/1373/transporte-y-mudanza-imagen-animada-0044.gif)
 
 # MUDAPP: La app de las mudanzas
 
